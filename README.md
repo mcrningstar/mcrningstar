@@ -9,13 +9,11 @@ $${\color{white} “ \color{#CE141E} Mark \color{white},” \space \color{#CE141
 ---- work in progress lol ----
 <br>
 <br>
-</p> 
-<p align="left"> 
+
 $${\color{white}“ \color{#D9EFE0}Remember \space when \space w\color{#B6D2D4}e \space said \space we \space w\color{#8DAFC5}ould \space be \space frien\color{#5F89B4}ds \space in \space e\color{#3B6BA7}very \space universe \color{white}?”}$$
-</p>
-<p align="right"> 
+<br>
 $${\color{white}“\color{#CE141E}Sixth \space gra\color{#CF4447}de\color{white}, \space \color{#CF4447} on \space the \space \color{#D07671} swing  \space set\color{white}?”}$$
-</p>
-<p align="left"> 
+<br>
 $${\color{white} “ \color{#D9EFE0} Yeah \color{white}, \space \color{#D9EFE0} I \space meant \space that \color{white}, \space \color{#D9EFE0}you \space kn\color{#B6D2D4}ow\color{white}. \space \color{#B6D2D4} We \color{white}’\color{#B6D2D4}re \space friends \space no\space  matter \space what\color{white},\space \color{#8DAFC5}you\space massive \space dork\color{white}."}$$
-</p>
+
+</p> 

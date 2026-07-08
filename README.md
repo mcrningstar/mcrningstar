@@ -8,7 +8,7 @@ $${\color{white} “ \color{#CE141E} Mark \color{white},” \space \color{#CE141
 <br>
 github i use when i need to explain that i do not support or engage with a media because my hyperfixations KEEP HAVING BULLSHIT CREATORS
 <br> 
-SO: NO, I DO NOT SUPPORT ALEX KISTER OR ZEAL. AND IF YOU DEFEND THEM: KINDLY FUCK RIGHT OFF. 
+SO: NO, I DO NOT SUPPORT ALEX KISTER, QWEL OR ZEAL. AND IF YOU DEFEND THEM: KINDLY FUCK RIGHT OFF. 
 <br>
 <br>
 

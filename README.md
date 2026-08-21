@@ -2,9 +2,12 @@ uhh hi im blu/bloo i use it/he prns and im #20
 <br>
 Feel free to c+h if im alone im usually afk or people watching. Usually sat between docks and spawn. (90% Docks i go to spawn when i'm alone and bored at stupid times of the day/silly)
 <br>
-i might have a favourite... just a maybe...
 <br>
+<br>
+Currently hyperfixated on limbus company (who wouldve guessed)
+<br>i might have a favourite... just a maybe...
+<br> <br>
 ![](https://komarev.com/ghpvc/?username=lostininferno&color=red&style=flat-square)
-
+<br> <br> 
 lowkeyi was gonna name this lost in inpherno and make it phighting themed but phuck you idk /silly
-<br> Im new here (just finished canto 3) but hi hello my partner got me into this mess
+<br> Im new to proj moon (just started canto 4 lol) but hi hello my partner got me into this mess and i love them 4 it

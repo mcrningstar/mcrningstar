@@ -13,7 +13,7 @@ Currently hyperfixated on limbus company (who wouldve guessed)
 lowkeyi was gonna name this lost in inpherno and make it phighting themed but phuck you idk /silly
 <br> Im new to proj moon (just started canto 4 lol) but hi hello my partner got me into this mess and i love them 4 it
 <br> <br> <br> 
-my favs :] (yea ik basic ass favs sue me /silly)
+i love all of the sinners they make me maternal but . my favs :] (yea ik basic ass favs sue me /silly)
 <br> 
 
 <img src="https://file.garden/ZfRta4uUh3asFRHD/dante2.png" width="150" /> <img src="https://file.garden/ZfRta4uUh3asFRHD/greg2.png" width="170" /> <img src="https://file.garden/ZfRta4uUh3asFRHD/heath2.png" width="150" /> <img src="https://file.garden/ZfRta4uUh3asFRHD/ishmael.png" width="170" />

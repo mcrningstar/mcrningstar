@@ -11,7 +11,7 @@ Currently hyperfixated on limbus company (who wouldve guessed)
 ![](https://komarev.com/ghpvc/?username=lostininferno&color=red&style=flat-square)
 <br> <br> 
 lowkeyi was gonna name this lost in inpherno and make it phighting themed but phuck you idk /silly
-<br> Im new to proj moon (know the bare minimum abt lobcorp/library of ruina & just started canto 4 lol) but hi hello my partner got me into this mess and i love them 4 it
+<br> Im new to proj moon (know the bare minimum abt lobcorp/library of ruina & almost finished canto 4 lol) but hi hello my partner got me into this mess and i love them 4 it
 <br> <br> <br> 
 i love all of the sinners they make me maternal but . my favs :] (yea ik basic ass favs sue me /silly)
 <br> 
